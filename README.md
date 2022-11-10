@@ -1,1 +1,2 @@
-<div style="width:100%;height:0;padding-bottom:216%;position:relative;"><iframe src="https://giphy.com/embed/kReKcfrs1YoTmt2AQt" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/stickers/TELYORGANICS-space-alien-aliens-kReKcfrs1YoTmt2AQt">via GIPHY</a></p>
+Assalomu Aleykum For everyone visiting my profile
+<img src="https://media4.giphy.com/media/kReKcfrs1YoTmt2AQt/giphy.gif?cid=ecf05e4754v9orsp384y70yzsyh1p5z4hb9yhhkoy0594ea0&rid=giphy.gif&ct=s">
